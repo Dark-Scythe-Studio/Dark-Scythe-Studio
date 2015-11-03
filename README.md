@@ -1,1 +1,4 @@
 # Dark-Scythe-Studio
+
+
+DO NOT STEAL ANY CODE WITHOUT PERMISSION
